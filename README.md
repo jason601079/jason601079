@@ -61,9 +61,8 @@ Think of it as my **tech playground** 🏗️
 ---
 
 ## 🌐 Let’s Connect!
-- 💼 [LinkedIn](#)  
-- 🐦 [Twitter/X](#)  
-- 📧 Email me at: **your-email@example.com**
+- 💼 [LinkedIn](https://www.linkedin.com/in/jason-taylor-697637217/)    
+- 📧 Email me at: **taylorleejason@gmail.com**
 
 ---
 
